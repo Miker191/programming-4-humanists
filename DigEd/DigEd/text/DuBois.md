@@ -1,3 +1,5 @@
+# Prefaces to _The Souls Of Black Folk_
+## W.E.B. DuBois
 The Forethought
 
 Herein lie buried many things which if read with patience may show the
